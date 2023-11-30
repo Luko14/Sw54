@@ -1,10 +1,7 @@
 dit
 xxas
 thisfiswhi
-s
-stmoglraswq
-stoway
-stshit
+stokastikrsi
 awop
 wfulipk
 towpao
