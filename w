@@ -14,3 +14,4 @@ wow.Pecox
 woshoos
 lakostowso
 konehis
+salkos
