@@ -6,7 +6,8 @@ awop
 wfulipk
 towpao
 paopdowo
-warsons
+warsonsnas
+sátéva
 fascopaso
 wawlow
 kokcinwo
